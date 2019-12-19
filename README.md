@@ -1,1 +1,1 @@
-# buch_nitya_barca_info
+# buch_nitya_infographic
